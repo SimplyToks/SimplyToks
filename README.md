@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SimplyToks
 - 👀 I’m interested in Content Writing and Content Marketing
 - 🌱 I’m currently learning Technical Writing
-- 💞️ I’m looking to collaborate with you to creat magic
+- 💞️ I’m looking to collaborate with you to create magic
 - 📫 How to reach me koladeesther15@gmail.com
 
 <!---
